@@ -23,6 +23,11 @@ Courses on Mind, Body, Spirit, Energy, Healing etc
 
 # Meditation
 
+# Money
+# Money Mindset
+- Peace with Money - https://wildheartsriseup.mykajabi.com/peace-with-money (04/17/2025 - Completed 1 of 5 weeks)
+- Tapping into Prosperity Calls - Brad Yates - https://www.tapwithbrad.com/store/ijy8o5LU (04/17/2025 - )
+- 
 # Tarot
 
 # Vaastu
